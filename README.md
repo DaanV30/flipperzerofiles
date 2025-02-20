@@ -7,5 +7,5 @@ The firmware i preffer is Flipper Zero unleashed. But with some of the files you
 These files are only for Educational Purposes only.
 I am not responsible for any damage you cause
 
-wanna join my discord?
-https://discord.gg/m59apW9s3D
+wanna join my Discord?
+https://discord.gg/tPpT46CJH6
