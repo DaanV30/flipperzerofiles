@@ -9,3 +9,5 @@ I am not responsible for any damage you cause
 
 wanna join my Discord?
 https://discord.gg/tPpT46CJH6
+
+i made the discord server more active so it is nicer to join
