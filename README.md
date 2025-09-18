@@ -11,3 +11,5 @@ wanna join my Discord?
 https://discord.gg/tPpT46CJH6
 
 i made the discord server more active so it is nicer to join...
+
+more things will be added to the repository (last updated: 18-9-2025)
